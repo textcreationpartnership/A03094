@@ -36,10 +36,82 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The history of Herodian, a Greeke authour treating of the Romayne emperors, after Marcus, translated
+
+1. ❧To the ryghte honorable Lorde, Wyllyam Earle of Penbroke, &c. Lorde Preſident of the Kyng and Queenes Maieſties Counſayle, in the Marches of Wales, and one of theyr Maieſties moſt honorable preuie Counſaile, his humble Oratour Nycholas Smyth, wyſheth all thynges proſperous.
+
+1. ¶THE PROHEME OF the hiſtorie of Herodian, treating of the Romayne Emperours, after Marcus.
+
+1. ¶The contentes of the fyrſte booke.
+
 #####Body#####
-The history of Herodian, a Greeke authour treating of the Romayne emperors, after Marcus, translated
+
+1. ¶The fyrſte booke of the hiſtorie of Herodian.
+
+1. ¶The Argumente of the ſeconde booke.
+
+1. The Seconde Booke of the Hiſtorie of Herodian.
+
+1. ¶The Argumente of the thyrde booke of Herodyan.
+
+1. ¶The thyrde booke of Thiſtorye of Herodian.
+
+1. ¶The Argumente of the fourthe Booke of Herodian.
+
+1. ¶The fourthe booke of Thiſtorie of Herodian.
+
+1. ¶The Argumente of the fyfth boke of the Herodian.
+
+1. ¶ The fyfte booke of the Hyſtorye of Herodyan.
+
+1. ¶The Argumente of the ſyxte Booke of Herodian.
+
+1. ¶The ſyxte booke of the Hyſtorie of Herodian.
+
+1. ¶ The Argumente of the ſeuenth Booke of Herodyan.
+
+1. ¶The ſeuenth booke of the Hyſtorye of Herodyan.
+
+1. ¶The Argumente of the eyghte Booke of Herodian.
+
+1. ¶The eyghte booke of the Hiſtorye of Herodian.
+
 #####Back#####
+
+1. ¶The Annotacions in forme of a Table after the order of the Alphabete, contaynynge the expoſytion of many woordes, Hiſtories, Fables, ſytuacions of places, and deſcription of Countreyes, ſeruynge to the more eaſye vnderſtandynge of the preſente Hyſtorye.
+
+    _ A.
+
+    _ B.
+
+    _ C.
+
+    _ D.
+
+    _ E.
+
+    _ G.
+
+    _ I.
+
+    _ L.
+
+    _ M.
+
+    _ N.
+
+    _ O.
+
+    _ P.
+
+    _ R.
+
+    _ S.
+
+    _ T.
+
+    _ V.
+¶Imprynted at London, in Flete ſtrete, by Wyllyam Coplande, at the Sygne of the Roſe Garlande.¶Cum g
+1. ¶Faultes eſeaped in the Pryntinge.
 
 **Types of content**
 
